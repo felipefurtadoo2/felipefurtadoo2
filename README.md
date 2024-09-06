@@ -4,4 +4,4 @@ trabalho no Grupo RENAER a 1 ano e meio .
 Estou me desenvolvendo bastante no ALURA 
 
 
-![]([https://tenor.com/bCiAJ.gif](https://tenor.com/pt-BR/view/bills-ugh-gif-9811803164280522639)
+![]([https://tenor.com/bCiAJ.gif](https://tenor.com/pt-BR/view/bills-ugh-gif-981180316428052263900)
